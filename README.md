@@ -2,8 +2,6 @@
 
 Hello Sir, how are you?
 
-My name is Ala and I am from Argentina.
-
 I'd like to take jobs in upwork.com with my web dev skills and your call support together.
 
 We will take jobs in upwork together and I do development on my computer and you will support me for call service to take jobs.
