@@ -6,7 +6,11 @@ I'd like to take jobs in upwork.com with my web dev skills and your call support
 
 We will take jobs in upwork together and I do development on my computer and you will support me for call service only to take jobs.
 
-We will divide the revenue together and will discuss the percentage for you.
+So I want to use your Upwork account on your computer remotely via anydesk. You will help me to get jobs in upwork for example call service.
+
+You will need to help me for an hour per day.
+
+I will give 10% for your assistance. It will be minimal 100$ per week.
 
 If you have a spare computer and are interested in, please contact me via Telegram.
 
