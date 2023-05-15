@@ -6,7 +6,7 @@ I'd like to take jobs in upwork.com with my web dev skills and your call support
 
 We will take jobs in upwork together and I do development on my computer and you will support me for call service only to take jobs.
 
-### So I want to use your Upwork account on your computer remotely via anydesk. You will help me to get jobs in upwork for example call service.
+### So I want to use your Upwork account on your computer remotely via anydesk. You will help me to get jobs in upwork. For example call assistance.
 
 You will need to help me for an hour per day.
 
